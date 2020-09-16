@@ -1,4 +1,4 @@
-The race begins!
+The race is about to begin!
 The man pulls ahead of Midnight.
-Midnight pulls ahead!
-The man wins by a 
+The man wins!
+THE END
